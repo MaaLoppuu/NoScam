@@ -1,0 +1,2 @@
+# NoScam
+Trust me bro
